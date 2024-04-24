@@ -1,1 +1,1 @@
-# coba buka buka folder di atas buat liat kodingan dan asset gambar dari praktek kita ❤️
+# coba buka-buka folder di atas buat liat kodingan atau gambar dari praktek kita ❤️
